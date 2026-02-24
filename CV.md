@@ -1,3 +1,5 @@
+![photo, 20%](https://sb.kaleidousercontent.com/67418/1000x1000/8fbbfc9296/cv-color-thumbnail.png) 
+
 # Jacques PHAM
 
 **Paris**  
