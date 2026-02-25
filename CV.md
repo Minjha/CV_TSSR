@@ -2,8 +2,7 @@
 
 # Jacques PHAM
 
-**Paris**  
-minjha_it@hotmail.com  
+**Paris**   
 www.linkedin.com/in/jacquespham
 
 ## Technicien Systèmes et Réseaux
@@ -15,18 +14,7 @@ www.linkedin.com/in/jacquespham
 **Technicien Système et Réseaux Bac +2**
 _Wild Code School - 2026_
 
-**SSIAP 3 Bac +2**
-_École Nationale de Chimie, Paris 5 - 2018_
-
-**Certificat Professionnel de Sécurité** 
-_CNAPS Préfecture du 95 - 2010_
-
 ## EXPÉRIENCES
-
-**Employeur confidentiel - Paris**
-* Chauffeur de direction/ mai 2019-Juillet 2025
-
-> _Fiabilité, culture de l’excellence et engagement constant vers la qualité._
 
 **Palace de Crillon - Rosewood Hotel**
 * Chef d’équipe sécurité/ Aout 2015-Avril 2019
